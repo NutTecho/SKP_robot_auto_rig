@@ -4,4 +4,5 @@ https://medium.com/@nutert321/%E0%B8%82%E0%B8%A2%E0%B8%B1%E0%B8%9A-robot-%E0%B9%
 
 <img width="2000" height="1081" alt="image" src="https://github.com/user-attachments/assets/76da04ec-3e18-4247-8d88-9b1ef7cdaea8" />
 <img width="1366" height="738" alt="Gif_2026-09-28_11_40_23" src="https://github.com/user-attachments/assets/56e7e78d-ef83-4179-959c-a15e9bfbdc7b" />
+<img width="1208" height="731" alt="Gif_2026-09-28_13_39_57" src="https://github.com/user-attachments/assets/2b394057-7cb9-456c-b164-6f95a421be7d" />
 
